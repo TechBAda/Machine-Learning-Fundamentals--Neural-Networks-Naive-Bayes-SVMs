@@ -91,6 +91,6 @@ University of South Florida
 I regularly share my analytics, machine-learning and my analysis purpose.
 
 **LinkedIn:**  
-https://www.linkedin.com/in/adanmaokoroafor
+https://www.linkedin.com/in/okoroaforadanma/
 
 
